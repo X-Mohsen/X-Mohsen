@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @X-Mohsen 
-- 👀 I’m interested in Python ,Algorithms, Network, GNU/Linux and anything else that makes me full-time geek 
+- 👀 Power - Patience - Genius
 - ⚡ 11228
